@@ -1,6 +1,6 @@
 Eder Texeira- Director of Business and Web Development
 
-Founder of a reputable web design firm based in Dallas, Texas. Has 10 years experience consulting with multi-million dollar companies on marketing, business development, and growth acceleration. Early investor in Tron. Crypto voice on Youtube with 1,000+ subscribers. Loves coffee and owns a local coffee shop. 
+Founder of a reputable web design firm based in Dallas, Texas. Has 10 years experience consulting with multi-million dollar companies on marketing, business development, and growth acceleration. Early investor in Tron. Crypto voice on Youtube with 3,500+ subscribers. Loves coffee and owns a local coffee shop. 
 
 Nam Trinh - Director of Technology
 
