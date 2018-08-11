@@ -1,4 +1,4 @@
-Tron has been able to overcome adversity thanks to its determined and loyal following. “It is the community that will take Tron to the next level and beyond.” With the help of the community, TronSpark hopes to be a big part in Tron’s evolution. 
+Tron has been able to overcome adversity thanks to its determined and loyal following. “It is the community that will take Tron to the next level and beyond.” (You may want to put a Twitter share on this comment by TronSpark) With the help of the community, TronSpark hopes to be a big part in Tron’s evolution. 
 
 TronSpark firmly believes that for our efforts to materialize, it is of utmost importance to earn the trust and respect of the community. In order to accomplish this, we will have many channels to interact with the team so that ideas and concerns can be discussed. Our staff will always be open to discussing new ideas. After all, that’s how ideas come to life.
 
@@ -12,7 +12,7 @@ Social Events
 We are grateful for the support from the community as we will work together to organize Tron focused social meets - Currently we have a Dallas meetup on August 17th at Sons of Liberty Coffee in Dallas, Texas. A meet in Miami and New York City will be next. 
 
 Social Media 
-Eder Texeira has a crypto Youtube Channel with over 3,500 subscribers and over 100,000 page views. This group will be converted into a Tron focused channel. 
+Eder Texeira has a crypto Youtube Channel with over 1,000 subscribers and over 100,000 page views. This group will be converted into a Tron focused channel. 
 
 Content Sharing Rewards(Future): TronSpark plans to offer additional rewards for the sharing and distribution of our digital content. We plan to utilize TronSpark ad revenues to fund this additional rewards program. We are currently working on the technical aspect for integrating this into the platform. 
 
