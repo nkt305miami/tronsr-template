@@ -16,4 +16,4 @@
 
 **Content Sharing Rewards: (Future Plans)**
 
-Tronspark plans to offer additional rewards for the sharing and distribution of our digital content. We plan to utilize TronSpark Ad revenues to fund this additional rewards program. We are currently working on the technical development of the these features into our platform.
+Tronspark plans to offer additional rewards for the sharing and distribution of our digital content. We plan to utilize TronSpark Ad revenues to fund this additional rewards program. We are currently working on the technical development of these features into our platform.
