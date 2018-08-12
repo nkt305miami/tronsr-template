@@ -16,9 +16,6 @@ We are grateful for the support from the community as we will work together to o
 **Social Media** 
 Eder Texeira has a crypto Youtube Channel with over 3,500 subscribers and over 100,000 page views. This group will be converted into a Tron focused channel. 
 
-**Why is TronSpark not able to increase the Community Rewards to 70-100%?** 
-TronSpark is a staffed endeavor that is dedicated to adding value to every TRX holder. In order to provide quality professional content on our platform, we must dedicate the resources necessary in order to achieve this. We firmly believe that the fruits of our labor will be reflected in the price of TRX going forward. Furthermore, as our site expands, and ad revenues grow, we will channel these revenues towards Community Rewards programs. At some point, we may not have to rely on the Super Representative token distribution, therefore, an increase of the  community rewards may be possible.
-
 Please always remember that getting 100% rewards on a token that is losing value, is not our objective. Our mission is to help the Tron ecosystem grow, thereby, delivering value to ALL TRX holders.   
 
 
