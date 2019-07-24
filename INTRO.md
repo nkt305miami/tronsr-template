@@ -20,6 +20,8 @@
 
 -**Website Homepage:**     [www.TronSpark.com](http://www.tronspark.com/)
 
+-**Telegram Channel:**  [https://t.me/tronspark](https://t.me/tronspark)
+
 -**Super Representative Proposal Link:**    [www.TronSpark.com/sr/](http://www.tronspark.com/sr/)
 
 **-TronScan Representative Page:**   <https://tronscan.org/#/representative/TTMNxTmRpBZnjtUnohX84j25NLkTqDga7j> 
