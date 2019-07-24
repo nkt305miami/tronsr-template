@@ -11,11 +11,8 @@ As with any business, marketing is an integral part of growth. TronSpark aims to
 TronSpark would also like to work with other Super Representatives, or candidates, to organize events that are in the best interest of the Tron platform. We will produce content as requested by any Super Representative. It is important to work together as we all share a common goal. 
 
 **Social Events**
-We are grateful for the support from the community as we will work together to organize Tron focused social meets - Currently we have a Dallas meetup on August 17th at Sons of Liberty Coffee in Dallas, Texas. A meet in Miami and New York City will be next. 
+We are grateful for the support from the community as we will work together to organize Tron focused social meets -
 
-**Social Media** 
-Eder Texeira has a crypto Youtube Channel with over 3,500 subscribers and over 100,000 page views. This group will be converted into a Tron focused channel. 
-
-Please always remember that getting 100% rewards on a token that is losing value, is not our objective. Our mission is to help the Tron ecosystem grow, thereby, delivering value to ALL TRX holders.   
+Please always remember that getting any rewards on a token that is losing value, is not our objective. Our mission is to help the Tron ecosystem grow, thereby, delivering value to ALL TRX holders.   
 
 
