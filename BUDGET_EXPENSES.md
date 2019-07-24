@@ -1,10 +1,8 @@
 **TronSpark Super Representative Distribution of Tokens**
 
-**70%** - Community Rewards
+**80%** - Community Rewards
 
 **10%** - Staff and News Portal Expenses
-
-**10%** - Business Development and Events
 
 **10%** - Systems Services Contracts and Hardware and Upgrade Expenditures
 
